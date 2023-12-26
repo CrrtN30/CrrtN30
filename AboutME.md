@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CrrtN30
-- 👀 I’m interested in becoming developer
-- 🌱 I’m currently learning backend 
-- 💞️ I’m looking to collaborate on you?
+- 👀 I’m interested in becoming developer, i'm still learning so don't judge me
+- 🌱 I’m currently learning backend
+- 💞️ I’m looking to collaborate on you. anyone that want to
 - 📫 How to reach me, follow me on [instagram](https://www.instagram.com/akbar.json/)
